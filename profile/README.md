@@ -5,7 +5,7 @@ ShotCut Mod APK is a powerful mobile video editor designed for Android users. It
 
 ShotCut for Android combines simplicity with advanced editing capabilities. It works perfectly for TikTok, YouTube, or personal projects. Users can trim, merge, and apply video effects effortlessly, ensuring stunning results every time.
 
-## Download Now:😊 [shotcut mod apk](https://heyapks.com/)
+## Download Now:😊 https://heyapks.com/
 
 ### Key Highlights:
 - **Genre**: Video editing app
